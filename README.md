@@ -1,2 +1,2 @@
 # badge!cvcvgfgfgf
-it is for getting achievements
+it is for getting achievements!.
